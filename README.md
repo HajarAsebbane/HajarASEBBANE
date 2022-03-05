@@ -1,3 +1,3 @@
 ### Hi there 👋
 
- Currently i'm a Student in computer systems and software engineering at Technology High School Essaouira -Morocco. 
+ Currently i'm a   computer systems and software engineering student at Technology High School Essaouira -Morocco. 
